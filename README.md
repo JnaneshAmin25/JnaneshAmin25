@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Jnanesh Amin (Janu)
+# 👋 Hi, I'm Jnanesh Amin 
 
 ## 🚀 About Me
 - 🌱 MCA Student @ Manipal Institute of Technology  
